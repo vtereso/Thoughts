@@ -1,0 +1,2 @@
+# Thoughts
+:thinking_face:
